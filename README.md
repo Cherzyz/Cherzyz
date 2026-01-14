@@ -1,6 +1,5 @@
 ## Hi hello
 
-![image alt](https://github.com/Cherzyz/Cherzyz/blob/71a79166b7b1a8674ff4a634fc951ce0516dac8d/matt%20rhehahhehehehahhehehahhahahahehe%20(1).jpg)
 
 just know if u got followed ur cool <
 
