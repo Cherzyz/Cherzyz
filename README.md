@@ -7,6 +7,8 @@ just know if u got followed ur cool <
 
 ## ! . .im elysia and vinestaff kin!  I prefer to be called cherry u can use venus/ven but its mostly for close friends or ppl i allow to ( @bnhmmr ) 
 
+
+
 . . Im really hard to talk to and im uncomfortable person to have around but i love cuds, keep in mind that im a minor so just dont be weird. 
 
 
@@ -24,7 +26,7 @@ just know if u got followed ur cool <
 
 ### !. .INT
 
--feel free to interact with me! artists, cosplayers, cuddlers, mute and as long as youre not on dni list
+-feel free to interact with me! artists, cosplayers, cuddlers, ships, mute and as long as youre not on dni list
 
 ### !. . .IWEC
 
