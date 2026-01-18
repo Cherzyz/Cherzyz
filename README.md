@@ -5,11 +5,11 @@
 
 # *Hello!*
 
-## ! . .if i die or disappear, please remember me in her.
+## ! . .Im cherry, u can also call me venus or ven, mostly my close friends use it.. but idm.
 
 
 
-. .hii im cherry, Im really hard to talk to and im uncomfortable person to have around but i love cuds, keep in mind that im a minor so just dont be weird. Im mostly offtab dont mind it u can still cuddle but if u want to talk just whisper, cuddles enc
+. .Im really hard to talk to and im uncomfortable person to have around but i love cuds, keep in mind that im a minor so just dont be weird. Im mostly offtab dont mind it u can still cuddle but if u want to talk just whisper, cuddles enc
 
 
 
