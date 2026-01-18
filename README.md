@@ -24,7 +24,7 @@
 
 
 
-*. .i dont chat much and i prefer not to, theres 50% chance im on ur github/strawpage rn, waves*
+*. .i dont chat much and i prefer not to, theres 50% chance im on ur github/strawpage rn!! waves*
 
 
 
