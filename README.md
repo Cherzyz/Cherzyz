@@ -28,7 +28,7 @@
 
 
 
-![image alt](https://github.com/Cherzyz/Cherzyz/blob/6da01f52b5dd1a31c65c53e499b0cfdd07a3cec8/Post%20by%20%40radioexe%20%C2%B7%208%20images%20(1).gif)
+![image alt](https://github.com/Cherzyz/Cherzyz/blob/1ab502e6a317e970820f65d0acb77a72518824f6/pobierz.gif)
 
 
 ### !. .INT
