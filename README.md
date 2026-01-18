@@ -28,7 +28,7 @@ just know if u got followed ur cool <
 
 
 
-![image alt](https://github.com/Cherzyz/Cherzyz/blob/522a4562058693e0352cd4e015d4048c5944864d/pobierz%20(2).jpg)
+![image alt](https://github.com/Cherzyz/Cherzyz/blob/6da01f52b5dd1a31c65c53e499b0cfdd07a3cec8/Post%20by%20%40radioexe%20%C2%B7%208%20images%20(1).gif)
 
 
 ### !. .INT
