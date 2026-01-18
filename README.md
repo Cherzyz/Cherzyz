@@ -37,7 +37,7 @@ just know if u got followed ur cool <
 
 ### !. . .IWEC
 
--people -13 and +17, genshin players, yumeshippers, 4saken
+-people -13 and +17 (u can int but just dont be weird), genshin players, yumeshippers, 4saken
 
 ### !. .DNI
 
